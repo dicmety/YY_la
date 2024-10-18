@@ -14,6 +14,6 @@ bue i believe
 
 第一句：鸹貔
 
-第二句：没想好
+第二句：哈麻批
 
 It's consistent with my personality.
