@@ -1,7 +1,8 @@
 # YY_la
 My personal repository
 
-第一次使用github
+第一次使用github建立仓库
+建立仓库再白嫖，这样礼貌一点
 
 how to use is,I`dont know now
 bue i believe 
